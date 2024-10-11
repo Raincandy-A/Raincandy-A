@@ -1,7 +1,6 @@
 ### Hi there, you can call me Raincandy. 
 
 - i'm studying JavaScript now but i don't like to code. Please, don't see my repository if you aren't a teacher;
-- i have a boyfriend and i love him
 
 
   REMEMBER OUR PROMISE
