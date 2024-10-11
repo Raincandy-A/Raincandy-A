@@ -14,5 +14,6 @@ i'm studying JavaScript rnow but i don't like to code. Plase, don't see my repos
 
 
 REMEMBER OUR PROMISE
-
+! [_] ()
+https://media1.tenor.com/m/Pcnn6Wq5EHMAAAAd/hello-ariane.gif
 
