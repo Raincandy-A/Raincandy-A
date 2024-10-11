@@ -1,16 +1,18 @@
-## School stuff lol
+Hi there, you can call me Raincandy. 
 
-<!--
-**Raincandy-A/Raincandy-A** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+i'm studying JavaScript rnow but i don't like to code. Plase, don't see my repository if you aren't a professor.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+
+
+
+
+
+
+REMEMBER OUR PROMISE
+
+
